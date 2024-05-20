@@ -1,1 +1,1 @@
-# naimanova.github.io.
+# naimanova.github.io
